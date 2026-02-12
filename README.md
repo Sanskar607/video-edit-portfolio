@@ -24,6 +24,6 @@ https://youtube.com/shorts/nz4NptGn3Bc?feature=share
 https://youtube.com/shorts/nz4NptGn3Bc?feature=share
 
 ## 📩 Contact
-Email:
-Instagram:
-LinkedIn:
+Email:sanskaruniverse621@gmail.com
+Instagram:https://www.instagram.com/editwithsams/?hl=en
+LinkedIn: www.linkedin.com/in/sanskar-dhakad-video-editor-a03988389
